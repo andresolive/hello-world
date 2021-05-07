@@ -1,3 +1,4 @@
-Hola hermanito, ¿como estas?
+Hola hermanito, ï¿½como estas?
 Muy bien, gracias.
 Me da mucho gusto.
+Que buena onda
